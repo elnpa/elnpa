@@ -1,0 +1,7 @@
+- 👋 Hi there, I’m @elnpa
+- 👀 I’m interested in data analysis and cyber security.
+- 🌱 I’m currently learning how to streamline my skills for their best output.
+- 💞️ I’m looking to collaborate on making the world a batter place.
+- 📫 How to reach me elleparker24@gmail.com
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact(s): I have worked in Canada and America. I have travelled Europe, Asia and Africa. I lived in the subartic. I love surfing and snowboarding. 
